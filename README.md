@@ -8,3 +8,5 @@
 - 🏢 future **Software Engineer** 
 - 🏡'Lives in **Venezuela**
 
+- I'm always open for new oportunities to improve! i can speak either English or Spanish but my first lenguague is Spanish, I started this long journey a few years ago and i will try my best to keep growing and eventually reach my goals
+
